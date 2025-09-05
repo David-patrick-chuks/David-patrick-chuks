@@ -22,7 +22,7 @@ I’m **David Patty**, a developer passionate about blockchain, AI, and decentra
 
 ### 🌍 **Let's Connect!**
 - [Twitter](https://twitter.com/daypatty5686)
-- [Twitter](https://twitter.com/daypatty5686)
+- [gmail](davidchuksdev@gmail.com)
 
 ---
 
