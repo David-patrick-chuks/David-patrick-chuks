@@ -1,5 +1,5 @@
 <p align="center">
-    <img src="https://komarev.com/ghpvc/?username=AshutoshDM1&color=blueviolet" alt="ashutosh" />
+    <img src="https://komarev.com/ghpvc/?username=david-ptarick-chuks&color=blueviolet" alt="david-ptarick-chuks" />
 </p>
 <h1 align="center">
   <a href="https://git.io/typing-svg">
