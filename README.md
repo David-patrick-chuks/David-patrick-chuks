@@ -20,7 +20,7 @@
 
 
 ### 🤝 **Open to Collaboration**
-- [Twitter](https://twitter.com/david_patrick01)  - [gmail](davidchuksdev@gmail.com)
+- [Twitter](https://twitter.com/david_patrick01)  - [Gmail](davidchuksdev@gmail.com)
 
 ---
 
