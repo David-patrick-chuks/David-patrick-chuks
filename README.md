@@ -19,13 +19,11 @@
 ---
 
 
-### 💻 **I CODE EVERYDAY**
-- [Twitter](https://twitter.com/david_patrick01)
-- [gmail](davidchuksdev@gmail.com)
+### 🤝 **Open to Collaboration**
+- [Twitter](https://twitter.com/david_patrick01)  - [gmail](davidchuksdev@gmail.com)
 
 ---
 
-### 🤝 **Open to Collaboration**
+### 💻 **I CODE EVERYDAY**
 Let’s create something amazing together!
 
-Thanks for visiting! 🚀
